@@ -1,1 +1,1 @@
-# https://Nintendo4U
+# Nintendo4U
